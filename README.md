@@ -1,7 +1,5 @@
-# Marioskalo747.github.io 
+# Marioskalo747.github.io
 
 
 
-school
-jbj
-bjbj
+
